@@ -145,19 +145,3 @@ Headquarters sales hierarchy	none	have	Earn more commission
 
 Other vending machine brands,need to finish the sales independently by search customers and publish adveretisement. it is really high cost.
 ZIMA cloud sales system help you cast advertiding,give you the platform to sell,for you to find big customers,don't worry about sales problems,save money and free from worry!
-care_15
-
-about us
-
-FAQ
-Q1: What is the lift time of smart automatic drinks dispenser?
-
-A: Minimum 10 years, and you can expect more than 20 years.
-
-Q2: What's your gurantee term of smart automatic drinks dispenser?
-
-A: We provide 12 month gurantee on our products, Free spare parts and online tech support.
-
-Q3: Can I get parts supply of smart automatic drinks dispenser from you?
-
-A: Firstly, when you buy the vending machines in full container from us, some free spare parts will come together with the machines. Secondly, you can always get parts from us with very reasonable prices, and normally the shipment will be effected by courier service within 3 days after receiving your payment, but it will takes longer time if the spare parts you wanted are not in stock.
