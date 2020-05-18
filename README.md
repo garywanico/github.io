@@ -1,8 +1,6 @@
 ## Welcome to my vending machine blog
 ![](images/photobank(1).jpg)
 
-MACHINE SPECIFICATION
-
  
 
  Model
