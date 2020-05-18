@@ -1,5 +1,5 @@
 ## Welcome to my vending machine blog
-![Image description](link-to-image)
+![Image description](link-to-image/photobank(1).jpg)
 
 MACHINE SPECIFICATION
 
