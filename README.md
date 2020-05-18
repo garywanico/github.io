@@ -1,6 +1,5 @@
 ## Welcome to my vending machine blog
-pro 1.jpg
- 
+![Image description](link-to-image)pro 1.jpg 
 
 MACHINE SPECIFICATION
 
