@@ -1,5 +1,6 @@
 ## Welcome to my vending machine blog
-![avatar](/home/picture/1.png)
+![ZIMA-PRO-B-1](https://user-images.githubusercontent.com/64355111/82204839-3125ca80-9938-11ea-822f-8460acc81cb2.png)
+
  Model
 
 smart automatic drinks dispenser
