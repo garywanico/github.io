@@ -1,5 +1,5 @@
 ## Welcome to my vending machine blog
-![](images/photobank(1).jpg)
+![](images/ZIMA-PRO-B-1.png)
 
  Model
 
