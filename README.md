@@ -5,21 +5,35 @@
 Why vending business?
 Facts you should know about Vending
 How Does Your Present Income Compare With These?
+
 .Average Hourly Income of an Office Worker – $13.50
+
 .Average Hourly Income of a Factory Worker – $13.16
+
 .Average Hourly Income of a Salesperson – $16.47
+
 .Average Hourly Income of a Plumber – $20.56
+
 .Average Hourly Income of Vender Owner/Operator – $70.58
 Compiled from the Department of Labor Statistics
 By contacting one of the ZIMA company representatives, they can walk you through the few simple steps of starting your vending business. They will free to select location,offer products supply chain,choose machine,marketing activity etc service, and give you some professional advice.
 ![Slim机器_13](https://user-images.githubusercontent.com/64355111/82279682-b6a08d80-99bf-11ea-86bf-5e47cb91433f.jpg)
 Ask Yourself.... What other business offers the following with a national firm backing you every step of the way!!??
+
 .No Selling Experience Needed
+
 .Not Seasonal
+
 .No Technical Experience Required
+
 .No Fixed Equipment
+
 .High Income Potential
+
 .No Credit Risks
+
 .Automatic Repeat Business
+
 .Comprehensive Company Support
+
 .Grow at Your Own Speed
