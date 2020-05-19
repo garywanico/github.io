@@ -20,7 +20,8 @@ By contacting one of the ZIMA company representatives, they can walk you through
 ![Slim机器_13](https://user-images.githubusercontent.com/64355111/82279682-b6a08d80-99bf-11ea-86bf-5e47cb91433f.jpg)
 Ask Yourself.... What other business offers the following with a national firm backing you every step of the way!!??
 
-.No Selling Experience Needed
+  
+  .No Selling Experience Needed
 
 .Not Seasonal
 
